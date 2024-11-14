@@ -1,1 +1,1 @@
-# N8N Setup :)
+# N8N Setup 😍
